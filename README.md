@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @sketchy-01
 - 👀 I’m interested in technological advacment.
-- 🌱 I’m currently learning Bachelor of science(Aerospace engineering).
+- 🌱 I’m currently learning Bachelor of science(Aerospace engineering) at Kenyatta University.
 - 💞️ I’m looking to collaborate on learning various skills to enhance my self.
 - 📫 How to reach me: muimij24@gmail.com.
 - 😄 Pronouns:HE.
